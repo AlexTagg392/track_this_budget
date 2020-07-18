@@ -38,3 +38,5 @@
 - [GitHub Profile](https://github.com/AlexTagg392)
 
 For additional questions please reach out to my email at: christag392@gmail.com.
+
+Video: https://youtu.be/sMFqaoZY5Us
